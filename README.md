@@ -85,7 +85,7 @@ Contributions, issues, and feature requests are welcome! Feel free to fork the r
 
 - **Name**: Anshu
 - **Telegram**: [@Cyber_ansh](https://t.me/Cyber_ansh)
-- **Instagram**: [@ansh_tech_yt](https://www.instagram.com/anshopi__?igsh=MXA1YzZiZHVnbXI0MA==)
+- **Instagram**: [@anshopi__](https://www.instagram.com/anshopi__?igsh=MXA1YzZiZHVnbXI0MA==)
 
 ---
 
